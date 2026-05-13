@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with best birdeye sniper bot | liquidity-pool-analysis + price-impact-analysis, the #1 birdeye sniper bot. Includes liquidity-pool-analysis and
 
 
 
